@@ -50,4 +50,4 @@ Available at: https://github.com/helenistica90/TAFAD_waveforms
 📧 Contact
 
 For questions or collaborations, feel free to reach out:
-📩 helena.seiv@outlook.com
+📩 helenaseiv@outlook.com
